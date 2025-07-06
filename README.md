@@ -1,4 +1,4 @@
-# Victor Ayi-Bondzie Micah
+# Victor Ayi Bondzie-Micah
 Aspiring Cloud Software Engineer | Generation Ghana AWS Trainee
 
 ## About Me
